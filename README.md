@@ -1,1 +1,0 @@
-# newbiecontest.github.io
